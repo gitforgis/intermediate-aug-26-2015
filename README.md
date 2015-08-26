@@ -1,1 +1,3 @@
-# intermediate-aug-26-2015
+# intermediate class
+## August 26.2015
+## Redlands, CA
